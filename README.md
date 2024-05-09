@@ -1,0 +1,2 @@
+# XiaoBaRansRemastered
+XiaoBaRansRemastered by RiritoNinigaya
